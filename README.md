@@ -1,4 +1,4 @@
-We're happy to let you know that your purchase has been successfully received and is now being processed. 
+hWe're happy to let you know that your purchase has been successfully received and is now being processed. 
 🧾 Order Details Order Number: #ORD-74515632 Order Date:August 2026,
 Contact Support +1 (8O3) 369-OO75 
 
